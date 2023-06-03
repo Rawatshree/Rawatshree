@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Shrankhala Rawat
+- 👀 I’m interested in Finance
+- 🌱 I’m currently learning Risk and Valuation in Finance
+- 💞️ I’m looking to collaborate on Finance Sector
+- 📫 Can reach me @shreerwt30@gmail.com
+-  I would like to spend my free time with novels
+- Belong to Uttrakhand , RISHIKESH.
